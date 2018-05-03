@@ -1,1 +1,0 @@
-# sidasama.github.io
